@@ -41,7 +41,22 @@ The first symbol, with the triangle is:
 	3. Study the puzzle icons _carefully_, they offer important clues.
 	4. Added image for ![](https://dc31.minervallux.com/challenge/includes/puzzle-icon-10.png).
 
-1. https://dc31.minervallux.com/challenge
-2. https://dc31.minervallux.com/challenge#overlay
-3. https://dc31.minervallux.com/challenge#overlay
-4. 
+![](Screenshot%202023-08-15%20at%204.31.19%20PM.png)
+![](Screenshot%202023-08-15%20at%204.36.56%20PM.png)
+If I follow the arrow and lines from the front of the card the cards will follow this sequence.
+1. ![](Screenshot%202023-08-15%20at%204.33.03%20PM.png)
+2. ![](Screenshot%202023-08-15%20at%204.33.45%20PM.png)
+3. ![](Screenshot%202023-08-15%20at%204.34.27%20PM.png)
+4. ![](Screenshot%202023-08-15%20at%204.38.30%20PM.png)
+5. ![](Screenshot%202023-08-15%20at%204.39.06%20PM.png)
+6. ![](Screenshot%202023-08-15%20at%204.39.38%20PM.png)
+7. ![](Screenshot%202023-08-15%20at%204.40.13%20PM.png)
+8. ![](Screenshot%202023-08-15%20at%204.42.06%20PM.png)
+9. ![](Screenshot%202023-08-15%20at%204.41.20%20PM.png)
+10. ![](Screenshot%202023-08-15%20at%204.42.52%20PM.png)
+11. ![](Screenshot%202023-08-15%20at%204.43.20%20PM.png)
+12. ![](Screenshot%202023-08-15%20at%204.43.55%20PM.png)
+13. ![](Screenshot%202023-08-15%20at%204.44.35%20PM.png)
+14. ![](Screenshot%202023-08-15%20at%204.45.07%20PM.png)
+15. ![](Screenshot%202023-08-15%20at%204.46.44%20PM.png)
+16. ![](Screenshot%202023-08-15%20at%204.49.10%20PM.png)
